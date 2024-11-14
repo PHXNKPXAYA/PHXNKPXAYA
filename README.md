@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @PHXNKPXAYA
+- 👀 I’m interested in coding/hacking
+- 🌱 I’m currently learning how to hack
+- 💞️ I’m looking to collaborate on script
+- 📫 How to reach me email
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: none lol
