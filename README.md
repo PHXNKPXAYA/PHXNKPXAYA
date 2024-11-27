@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @PHXNKPXAYA
+- 👋 Hi, I’m @PHXNKPXAYA/Noah
 - 👀 I’m interested in coding/hacking
 - 🌱 I’m currently learning how to hack
 - 💞️ I’m looking to collaborate on script
