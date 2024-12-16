@@ -50,6 +50,14 @@ You can contact me via email
 
 ---
 
+## Support My Work
+
+If you enjoy my projects, such as **Packet Sender** or other tools, consider supporting me on **[Buy Me a Coffee](https://buymeacoffee.com/phxnkpxaya)**! ☕️ Your contributions help fund future development, enhancements, and more exciting projects. Every little bit helps and is greatly appreciated. 🙏
+
+Thank you for your support! 💙
+
+---
+
 ## Personal Details
 
 😄 **Pronouns:** He/Him  
